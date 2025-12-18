@@ -9,13 +9,13 @@
 <p align="center">
   <a 
  <p align="side">
-  <img width="50" src=https://i.postimg.cc/t4SF26DW/Untitled659-20251207232059.png> zoul/chu 🍀  🇵🇭🏳️‍⚧️  °       ` 
+  <img width="70" src=https://i.postimg.cc/t4SF26DW/Untitled659-20251207232059.png> zoul/chu 🍀  🇵🇭🏳️‍⚧️  °       ` 
 
 <p align="center">my main interest:gachiatuka, dandadan, one piece, skullgirls and mha
 
 
 <p align="middle">
-<img width="30" src=https://i.postimg.cc/MH11Zr7W/Untitled659-20251207233452.png> im always offtab so like w21 this thing is wip so uh yeah
+<img width="50" src=https://i.postimg.cc/MH11Zr7W/Untitled659-20251207233452.png> im always offtab so like w21 this thing is wip so uh yeah
 
 
 
